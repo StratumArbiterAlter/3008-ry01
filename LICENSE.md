@@ -1,4 +1,4 @@
-
+Experience 3008 like never before with rare Script for 3008, the #1 Script. Includes one-hit kill and speed for unbeatable performance.
 
 
 
